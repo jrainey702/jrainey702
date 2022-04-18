@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jrainey702
+- 👀 I’m interested in learning more about how and what to code.
+- 🌱 I’m currently learning python, I think...
+- 💞️ I’m looking to collaborate on any project that will teach me the basics.
+- 📫 How to reach me --> Discord @ Jrainey702#9481
